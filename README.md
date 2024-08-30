@@ -44,3 +44,11 @@ Dynamism: Always looking for new ways to improve and learn.
 Commitment: Dedicated to achieving excellence in every project.
 
 Creativity: Innovating and designing unique and engaging solutions.
+
+Responsibility: Meeting our commitments and deadlines.
+
+Teamwork: We know how to combine our skills to create something bigger than the sum of our parts.
+
+🚀 Join Us!
+
+If you share our passion and want to be part of a vibrant team looking to make a difference, we are excited to meet you!
